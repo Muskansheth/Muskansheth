@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muskansheth
-- 👀 I’m interested in Coding, sales and marketing
+- 👀 I’m interested in Coding
 - 🌱 I’m currently pursuing BTech ug degree
 - 📫 contact me on muskansheth16@gmail.com
 
